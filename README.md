@@ -2,7 +2,7 @@
 - 👀 I’m interested in Technologi and Other things that related on Technologi
 - 🌱 I’m currently learning Java and other Programming Language
 - 💞️ I’m looking to collaborate on Deploy and Reconstructing Web
-- 📫 How to reach me ibadahsan601@gmail.com
+- 📫 How to reach me, you guys can send me a mail to ibadahsan601@gmail.com
 
 *KEEP RESPECT AND HAPPY PROGRAMMING*
 
